@@ -83,10 +83,4 @@ The MOD APK provides instant access to all premium skins and upgrades.
 Yes, simply uninstall the MOD APK and download the standard version from the Play Store.  
 
 ## Download Stickman Great War MOD APK Unlimited Money and Gems  
-Click the link below to download Stickman Great War MOD APK with unlimited money and gems. Build your army, crush opponents, and become the ultimate stickman tactician!  
-
-[Download Stickman Great War MOD APK](#)  
-
----
-
-Let me know if you'd like any adjustments or additional sections!
+Click the link below to download Stickman Great War MOD APK with unlimited money and gems. Build your army, crush opponents, and become the ultimate stickman tactician ⬆️  
